@@ -8,11 +8,11 @@
 
 ![image](https://github.com/MohithGowdaa/CMPE277-Assignment1/assets/57209823/adffb255-3650-4e3b-93f7-9ed70620daa6)
 
-![image](https://github.com/MohithGowdaa/CMPE277-Assignment1/assets/57209823/6232294e-6e61-44fe-8f96-aeebb7726484
+![image](https://github.com/MohithGowdaa/CMPE277-Assignment1/assets/57209823/6232294e-6e61-44fe-8f96-aeebb7726484)
 
-![image](https://github.com/MohithGowdaa/CMPE277-Assignment1/assets/57209823/829563bd-2950-44f5-b6ad-43f23427fb7c
+![image](https://github.com/MohithGowdaa/CMPE277-Assignment1/assets/57209823/829563bd-2950-44f5-b6ad-43f23427fb7c)
 
-![image](https://github.com/MohithGowdaa/CMPE277-Assignment1/assets/57209823/46a61957-e648-4f2d-b010-8917dbde6051
+![image](https://github.com/MohithGowdaa/CMPE277-Assignment1/assets/57209823/46a61957-e648-4f2d-b010-8917dbde6051)
 
 ![image](https://github.com/MohithGowdaa/CMPE277-Assignment1/assets/57209823/6e9bcfbc-df6a-4429-8d0b-5c7c871e73c7)
 
